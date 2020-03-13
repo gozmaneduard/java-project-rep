@@ -1,6 +1,6 @@
 # java-project-rep
 
-Hello boss,
+Hello bossss,
 
 I'm you, wazzup?
-and you are awsome!
+and you are awsome by the way!
